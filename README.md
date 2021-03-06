@@ -1,0 +1,2 @@
+#Lo que espero de este taller :D 
+Hola, mi nombre es Rodrigo Santamaria, tengo 16 años y soy de Tamaulipas, en un año entrare a la universidad y la verdad estoy indeciso de que es lo que quiero estudiar, la programacion me llama la atencion desde hace varios años, pero me gustaria descubrir si en verdad es a lo que me quiero dedicar o si mis interesas van hacia otros lados, aun asi, si resulta que el mundo de la informatica no es lo mio, tendre una herramienta que me ayudara demasiado en el futuro, ya que como dice mi maestra, la progr
